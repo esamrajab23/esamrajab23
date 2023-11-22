@@ -1,4 +1,4 @@
-I am Esam Rajab Faroog,
+I am Esam Rajab Faroog Mohamed,
 An electrical engineering student, inspired by the data analysis field, and I'd like to have a career path next to my studies, working hard to get to what I want.
 
 ▫️Skills:-
