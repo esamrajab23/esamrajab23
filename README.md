@@ -1,5 +1,5 @@
 I am Esam Rajab Faroog Mohamed,
-An electrical engineering student, inspired by the data analysis field, and I'd like to have a career path next to my studies, working hard to get to what I want.
+A highly motivated and results-driven individual  Entry Level Data Analyst. Possessing strong analytical,  and collaboration skills with a passion for utilizing data to solve complex problems and drive business growth. Seeking to apply expertise in data analysis, data processing, data governance and reporting to increase the efficiency and accuracy of data processing leading to growth and success.
 
 ▫️Skills:-
 
